@@ -1,0 +1,2 @@
+No licese
+All licese
