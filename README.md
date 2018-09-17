@@ -2,4 +2,12 @@
 
 readme
 It is just a start, 
-TBC...
+haha
+ddd:w
+sd
+
+
+TBC..
+
+dadada.
+GoodBye!!!!
